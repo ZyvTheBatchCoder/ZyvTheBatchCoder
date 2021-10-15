@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZyvTheBatchCoder
+- 👀 I’m interested in Coding On Batch
+- 🌱 I’m currently learning Batch Code
+- 💞️ I’m looking to collaborate on Batch Files
+- 📫 How to reach me .Zyv#0001 on discord
